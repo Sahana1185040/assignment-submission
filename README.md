@@ -1,1 +1,1 @@
-# assignment-submission
+sample opening
